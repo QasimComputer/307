@@ -1,0 +1,1 @@
+It is the interection between plant and environment.
